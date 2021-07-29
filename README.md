@@ -1,1 +1,1 @@
-### Junior Software Developer at WeThinkCode_
+### I write code 
