@@ -1,1 +1,1 @@
-### currently doing my best Alice Liddell impersonation
+### Currently doing my best Alice Liddell impersonation
